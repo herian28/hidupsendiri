@@ -1,0 +1,2 @@
+# hidupsendiri
+hidupsendiri
